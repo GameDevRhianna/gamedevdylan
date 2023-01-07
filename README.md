@@ -1,4 +1,4 @@
-### Howdy! I'm Dylan.
+### Howdy! I'm sylvie.
 
 I like to study video game development and programming in general.
 
